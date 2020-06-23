@@ -22,3 +22,6 @@ Spongebob Schwammkopf sagt:
 > Letzte Woche hab ich mir den Zehennagel gestoßen,
 > als ich meinen Kräutergarten bewässert hab, und 
 > ich hab nur 20 Minuten lang geheult!
+
+
+<img src="https://hoerzu.images.dvbdata.com/1050958/1050958_778x436.jpg"/>
