@@ -15,3 +15,10 @@ der mit weiteren Meerestieren in der am Meeresgrund gelegenen Stadt Bikini Botto
 * Die Mrs. Puffs Bootsfahrschule
 * Die Goo Lagune
 * Das Fancy!  
+
+
+Spongebob Schwammkopf sagt:
+
+> Letzte Woche hab ich mir den Zehennagel gestoßen,
+> als ich meinen Kräutergarten bewässert hab, und 
+> ich hab nur 20 Minuten lang geheult!
